@@ -18,3 +18,4 @@ Qualquer dúvida entre em contato
 ![](https://media.tenor.com/pHs6UZL1UO0AAAAC/hugo-blue-lock.gif)
 ![](https://media.tenor.com/b9QeJPEBspAAAAAC/absolute-cinema-kitagawa-marin.gif)
 ![](https://media.tenor.com/A3zPIwf6BfQAAAAC/kaoruko-waguri-the-fragrant-flower-blooms-with-dignity.gif)
+![](https://media.tenor.com/pL42thye3HoAAAAd/charles-chevalier-blue-lock.gif)
